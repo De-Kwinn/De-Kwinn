@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Patience Odeh
+- 👀 I’m interested in Learning and collaborating
+- 🌱 I’m currently learning Data Science
+- 💞️ I’m looking to collaborate on development projects
+- 📫 You can reach me on +2347030634015 ochodeh@gmail.com
+- 📄 I love tavelling and meeting new people
+- 🎑 I'm a fun and loving person to be around
